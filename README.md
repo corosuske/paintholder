@@ -19,3 +19,11 @@ to get started you will need
 * 1 * toe-hold
 * 4 * bottom
 * 4 * paint holder of the kind of paint you need
+
+
+per expansion you will need 
+* 1 * side
+* 1 * toe-hold
+* 4 * bottom
+* 4 * paint holder of the kind of paint you need
+
